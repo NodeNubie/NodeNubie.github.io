@@ -1,0 +1,1 @@
+# mindyalatas.github.io
